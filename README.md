@@ -1,1 +1,1 @@
-# OmegaCalculatorV2
+# dont cheat ;)
